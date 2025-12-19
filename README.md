@@ -77,3 +77,37 @@ Nå kan du fryse ned, sette i kjøleskap, eller spise alt på en gang (ingen dø
 
 > Oppskriften er primært testet med airfryer. Tallene for varmluft i stekeovn er estimater.
 
+---
+
+## FAQ
+
+### Er dette egentlig lasagne / autentisk italiensk?
+Nei og nei. Dette er *lasagne-inspirert gryte* som later som den er lasagne når ingen ser på.  
+Å kalle det "lasagne" vil sannsynligvis gi **fengselsstraff i Italia**
+
+### Jeg liker ikke (sett inn ingrediens). Hva gjør jeg?
+Gjør det magiske trikset: **ikke ha det i**.  
+Du står fritt til å bytte ut ting uten å sende søknad først.
+
+### Må jeg bruke gnocchi?
+Nei. Gnocchi funker "okay-ish", men det blir gjerne litt **vassent** etter steking.  
+Jeg bruker det likevel fordi potet-gnocchi ofte ligger rundt **~150 kcal per 100 g**, kontra vanlig pasta som kan ligge rundt **~350 kcal per 100 g**.
+
+Alternativer som bør fungere utmerket:
+- Lasagneplater
+- Annen pasta
+- Ris
+- Eller bare mer grønnsaker
+
+### Hva om jeg ikke tåler sterk mat?
+Dropp chili, eller bruk en halv. Oppskriften overlever fint uten.
+
+### Hvorfor kikerter?
+Fordi de gjør retten mer mett, gir litt ekstra protein/fiber, og de er basically umulige å ødelegge. 
+
+### Hvordan vet jeg at det er ferdig i airfryer/ovn?
+Når osten er smeltet, det bobler litt, og midten er varm.  
+Hvis du er usikker: stikk en gaffel ned i midten og kjenn om den er varm.
+
+### Hva om jeg ikke har airfryer?
+Stekeovn funker fint. **Airfryer er bare liten ovn med attitude**.
