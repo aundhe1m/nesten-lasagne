@@ -47,7 +47,7 @@ I tabellen under finner du Oda-link til eksempelprodukt, men du finner som regel
    Vil du ha mer tyggemotstand, kutt tiden omtrent i halvparten.
 7. Skyll kikertene godt i dørslag, og ha dem i kjelen. De er allerede møre, så de trenger bare å bli varme.
 8. Juster konsistensen. Hvis den er for tykk: spe med litt vann. Den skal være **forholdsvis tykk**, ikke suppe.
-9. Smak til med salt, pepper og spisskummen. Når du treffer riktig: gjør en obligatorisk “chef’s kiss”.
+9. Smak til med salt, pepper og spisskummen. Når du treffer riktig: gjør en obligatorisk "chef’s kiss".
 
 > **Notat:** Oppskriften bruker primært potet-gnocchi som legges **ukokt** i formene i neste steg.  
 > Hvis du bruker pastaplater kan det hende du bør forkoke dem (jeg har ikke testet det selv).
@@ -60,9 +60,9 @@ Legg frem ønsket antall former (aluminium, ildfast, eller langpanne). Under er 
 
 1. Fordel **100 g gnocchi** i hver form.
 2. Fordel kjøttgryten jevnt over (bruk gryteskje eller øse).  
-   Tips: Gjør det i 2 til 3 runder så alle får lik mengde av “de gode bitene”.
+   Tips: Gjør det i 2 til 3 runder så alle får lik mengde av "de gode bitene".
 3. Topp med **50 g revet ost** per porsjon.  
-   Vekt + liten skål er enklere enn å prøve å treffe direkte i formene. Alternativ: høykalibrert “eye-ball method”.
+   Vekt + liten skål er enklere enn å prøve å treffe direkte i formene. Alternativ: høykalibrert "eye-ball method".
 
 Nå kan du fryse ned, sette i kjøleskap, eller spise alt på en gang (ingen dømming).
 
