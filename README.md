@@ -1,6 +1,6 @@
 # Nesten Lasagne
 
-**~~Ulovlig-Lasagne~~ "Nesten-Lasagne"** er en min-maxing av latskap: masse grønnsaker, mye mat, lav-ish kaloritetthet, og perfekt til mealprep.  
+**~~Ulovlig Lasagne~~ "Nesten Lasagne"** er en min-maxing av latskap: masse grønnsaker, mye mat, lav-ish kaloritetthet, og perfekt til mealprep.  
 Dette er oppskriften du lager når du vil spise litt sunnere, men fortsatt føle at du gjør noe ulovlig digg.
 
 Oppskriften gir **8 porsjoner** som kan fryses ned eller stå kaldt i kjøleskap. Jeg varmer primært i **airfryer** i **aluminiumsformer** (f.eks. [Pluspack 930ml aluminium-container](https://www.pluspack.com/products/product/930ml-aluminium-container-bulk-carton/01tQF000007ssJ7YAI) som ofte finnes på Gigaboks i 50-pakning), men ildfaste former eller langpanne funker helt fint.
